@@ -6,6 +6,6 @@ Check out my website to learn more about me: https://applepielord291.github.io/Y
 
 Oh, and heres where you can play my games: https://applepielord291.itch.io/
 
-Farewell, to all 0 people that see this
+Farewell,
 
 apple
